@@ -1,2 +1,2 @@
 # Hello-World.-
-Opening github account
+Opening github account, just what the teacher told me to do. 
